@@ -7,6 +7,8 @@ Any user is responsible for his content and Missing Sudan has the authority to d
 Links to Third Party Websites
 we have included links on this Missing Sudan for your use and reference. we are not responsible for the privacy policies on these app. You should be aware that the privacy policies of these websites may differ from our own.
 
+The “Missing Sudan” application is safe for children and does not accept CSAE content  or behavior that sexually exploits, abuses or endangers children. You can report to us immediately via email in case of any inappropriate content.
+
 Security
 The security of your personal information is important to us, but remember that no method of transmission over the Internet, or method of electronic storage, is 100% secure. While we strive to use commercially acceptable means to protect your personal information, we cannot guarantee its absolute security.
 
